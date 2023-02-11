@@ -1,3 +1,3 @@
 ## Welcome
 - 👋 Hi, I am Ales17
-- 💾 To be completed :D
+- 📚 Currently studying ICT at the university 
